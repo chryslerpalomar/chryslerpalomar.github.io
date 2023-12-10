@@ -1,1 +1,0 @@
-# chryslerpalomar.github.io
